@@ -20,3 +20,5 @@ I want to lern:
 Open for new challenges. :muscle:
 
 Follow me if you want the full story! 
+
+![visitors](https://profile-counter.glitch.me/JanAlSaifi/count.svg)
